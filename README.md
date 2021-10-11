@@ -1,0 +1,1 @@
+Eu estava com medo de não conseguir aprender, mas me surpriendi comigo mesma e agora credito mais em mim. Este curso não esta me ensinado somente programação, mas está me evoluindo como pessoa.
